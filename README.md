@@ -22,7 +22,7 @@
 
 We can easily control the inherent issues with human nature by cultivating 24 character strengths.
 
-1) **Bias** nature can be cured by cultivating **wisdom** group of character strengths.
+1) **Bias** nature can be cured by cultivating **Wisdom** group of character strengths.
 2) **Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
 3) **Self importance** can be cured by cultivating **Humanity** group of character strengths.
 4) **Hedonic adaptations** can be cured by cultivating **Transendence** group of character strengths.
