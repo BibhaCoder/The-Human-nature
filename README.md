@@ -15,7 +15,7 @@
 
 4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BUSH** describes it perfectly:
 
-1) ***B*ias**: Being biased.
+1) ***B*ias**: Being biased and able to change mind(**cognitive dissonance**).
 2) ***U*s vs them**: Having tendency of creating groups based on us vs them mentality.
 3) ***S*elf importance**: Having craving for self importance.
 4) ***H*edonic adaptations**: Having hedonic adaptations and not being aware about daily hedonic adaptations.
