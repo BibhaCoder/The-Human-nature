@@ -13,7 +13,7 @@
 
 **Things to be aware about human nature**:
 
-4 inherent problems which came from human evolution described as keyword **BUSH**:
+4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BUSH** describes it perfectly:
 
 1) ***B*ias**: Being biased.
 2) ***U*s vs them**: Having tendency of creating groups based on us vs them mentality.
