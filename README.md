@@ -20,4 +20,11 @@
 3) ***S*elf importance**: Having craving for self importance.
 4) ****H*edonic adaptations**: Having hedonic adaptations and not being aware about daily hedonic adaptations.
 
+We can easily control the inherent issues with human nature by cultivating 24 character strengths.
+
+1) **Bias** nature can be cured by cultivating **wisdom** group of character strengths.
+2) **Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
+3) **Self importance** can be balanced with **Humanity** group of character strengths.
+4) **Hedonic adaptations** can be cured with **Transendence** group of character strengths.
+
 # Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
