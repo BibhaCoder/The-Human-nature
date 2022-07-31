@@ -17,7 +17,7 @@
 
 1) ***B*ias**: Being biased and not able to change our mind(**cognitive dissonance**).
 2) ***U*s vs them**: Having tendency of creating groups based on us vs them mentality.
-3) ***S*elf importance**: Having excessive craving for self importance.
+3) ***S*elf importance**: Having excessive craving for self importance(ego).
 4) ***H*edonic adaptations**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
 
 We can easily control the inherent issues with human nature by cultivating 24 character strengths.
