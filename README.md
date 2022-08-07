@@ -2,7 +2,7 @@
 
 **Best about human nature**:
 
-24 Character strengths which are common across various human societies and cultures:
+24 Universal Character Strengths which are common across various human societies and cultures:
 
 1) **Wisdom**: Creativity, Curiosity, Judgement(Rational and Critical thinking), Love of learning, Perspective
 2) **Courage**: Bravery, Perserverence, Integrity(Honesty), Zest
