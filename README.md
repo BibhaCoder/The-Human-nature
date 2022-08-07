@@ -22,7 +22,8 @@
 3) ***S*elf importance**: Having excessive craving for self importance(ego).
 4) ***H*edonic adaptations**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
 
-We can easily control the inherent issues with human nature by cultivating 24 character strengths.
+**Methods to cure inherent issues with human nature**:
+----
 
 1) **Bias** nature can be cured by cultivating **Wisdom** and **Courage** group of character strengths.
 2) **Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
