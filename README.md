@@ -1,6 +1,7 @@
 # Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
 
 **Best about human nature**:
+----
 
 24 Universal Character Strengths which are common across various human societies and cultures:
 
@@ -12,6 +13,7 @@
 6) **Transendence**: Appreciation of beauty and excellence, Gratitude, Hope, Humour and Sprituality
 
 **Things to be aware about human nature**:
+----
 
 4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BUSH** describes it perfectly:
 
@@ -22,9 +24,9 @@
 
 We can easily control the inherent issues with human nature by cultivating 24 character strengths.
 
-1) **Bias** nature can be cured by cultivating **Wisdom** group of character strengths.
+1) **Bias** nature can be cured by cultivating **Wisdom** and **Courage** group of character strengths.
 2) **Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
-3) **Self importance** can be cured by cultivating **Humanity** group of character strengths.
+3) **Self importance** can be cured by cultivating **Humanity** and **Temperance** group of character strengths.
 4) **Hedonic adaptations** can be cured by cultivating **Transendence** group of character strengths.
 
 # Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
