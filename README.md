@@ -15,12 +15,12 @@
 **Things to be aware about human nature**:
 ----
 
-4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BUSH** describes it perfectly:
+4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BIAS** describes it perfectly:
 
 1) ***B*ias**: Being biased and not able to change our mind(**cognitive dissonance**).
-2) ***U*s vs them**: Having tendency of creating groups based on us vs them mentality.
-3) ***S*mug**: Having excessive craving for self importance(ego).
-4) ***H*edonic adaptations**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
+2) ***I*rrational us vs them**: Having tendency of creating groups based on us vs them mentality.
+3) ***A*daptations(Hedonic)**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
+4) ***S*mug**: Having excessive craving for self importance(ego).
 
 **Methods to cure inherent issues with human nature**:
 ----
