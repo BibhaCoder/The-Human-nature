@@ -19,7 +19,7 @@
 
 1) ***B*ias**: Being biased and not able to change our mind(**cognitive dissonance**).
 2) ***U*s vs them**: Having tendency of creating groups based on us vs them mentality.
-3) ***S*elf importance**: Having excessive craving for self importance(ego).
+3) ***S*mug**: Having excessive craving for self importance(ego).
 4) ***H*edonic adaptations**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
 
 **Methods to cure inherent issues with human nature**:
