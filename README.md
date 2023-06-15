@@ -27,7 +27,7 @@
 
 1) **Bias** nature can be cured by cultivating **Wisdom** and **Courage** group of character strengths.
 2) **Irrational Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
-3) **Smug or excessive self importance** can be cured by cultivating **Humanity** and **Temperance** group of character strengths.
-4) **Adaptations(Hedonic)** can be cured by cultivating **Transendence** group of character strengths.
+3) **Adaptations(Hedonic)** can be cured by cultivating **Transendence** group of character strengths.
+4) **Smug or excessive self importance** can be cured by cultivating **Humanity** and **Temperance** group of character strengths.
 
 # Copyright (c) 2013 BibhaCoder(https://github.com/BibhaCoder). All rights reserved.
