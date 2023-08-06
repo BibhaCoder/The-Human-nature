@@ -20,7 +20,7 @@
 1) ***B*ias**: Being biased and not able to change our mind(**cognitive dissonance**) even when presented with evidence.
 2) ***I*rrational us vs them**: Having irrational tendency of creating groups based on us vs them mentality.
 3) ***A*daptations(Hedonic)**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
-4) ***S*mugness**: Having excessive craving for self importance(ego).
+4) ***S*mugness**: Having evolutionary excessive craving for self importance(ego).
 
 **Methods to cure inherent issues with human nature**:
 ----
