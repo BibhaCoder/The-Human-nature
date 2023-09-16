@@ -18,7 +18,7 @@
 4 inherent problems which came from human evolution and which are common across various human societies and cultures. Keyword **BIAS** describes it perfectly:
 
 1) **B**: **BIAS** Being biased and not able to change our mind(**cognitive dissonance**) even when presented with evidence.
-2) **I**: **Irrational us vs them**: Having irrational tendency of creating groups based on us vs them mentality.
+2) **I**: **Irrational Us vs Them**: Having irrational tendency of creating groups based on us vs them mentality.
 3) **A**: **Adaptations(Hedonic)**: Having hedonic adaptations and not being aware about everyday hedonic adaptations.
 4) **S**: **Smugness**: Having evolutionary excessive craving for self importance(ego).
 
@@ -26,7 +26,7 @@
 ----
 
 1) **Bias** nature can be cured by cultivating **Wisdom** and **Courage** group of character strengths.
-2) **Irrational Us vs them** mentality can be cured by cultivating **Justice** group of character strengths.
+2) **Irrational Us vs Them** mentality can be cured by cultivating **Justice** group of character strengths.
 3) **Adaptations(Hedonic)** can be cured by cultivating **Transendence** group of character strengths.
 4) **Smugness or excessive self importance** can be cured by cultivating **Humanity** and **Temperance** group of character strengths.
 
