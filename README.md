@@ -3,6 +3,11 @@
 **Best about human nature**:
 ----
 
+Fundamental human nature is **SAS**:
+
+1) Survive: To survive and
+2) Signify: To have significance 
+
 24 Universal Character Strengths which are common across various human societies and cultures:
 
 1) **Wisdom**: Creativity, Curiosity, Judgement(Rational and Critical thinking), Love of learning, Perspective
