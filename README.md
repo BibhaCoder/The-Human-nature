@@ -5,8 +5,9 @@
 
 Fundamental human nature is driven by **SaS**:
 
-1) **Survive**: to survive **and**
-2) **Signify**: to have significance 
+1) **Survive**: to survive
+            **and**
+3) **Signify**: to have significance 
 
 24 Universal Character Strengths which are common across various human societies and cultures:
 
