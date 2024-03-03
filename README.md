@@ -3,7 +3,7 @@
 **Best about human nature**:
 ----
 
-Fundamental human nature is **SaS**:
+Fundamental human nature is driven by **SaS**:
 
 1) **Survive**: To survive **and**
 2) **Signify**: To have significance 
