@@ -3,9 +3,9 @@
 **Best about human nature**:
 ----
 
-Fundamental human nature is driven by **SaS** (Survive and signify):
+Fundamental human nature is driven by **SanS** (Survive and signify):
 
-1) **Survive**: to survive **and**
+1) **Survive**: to survive **an**d
 3) **Signify**: to have significance 
 
 24 Universal Character Strengths which are common across various human societies and cultures:
