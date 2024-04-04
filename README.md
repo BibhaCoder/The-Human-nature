@@ -3,7 +3,7 @@
 **Best about human nature**:
 ----
 
-Fundamental human nature is driven by **SanS** (Survive and signify):
+Fundamental human nature is driven by **SanS** (Survive and Signify):
 
 1) **Survive**: **S**urvive **an**d
 3) **Signify**: have **S**ignificance 
