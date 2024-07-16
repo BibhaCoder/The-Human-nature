@@ -6,7 +6,7 @@
 Fundamental nature of human beings just like any living species is driven by **SanS** (Survive and Signify):
 
 1) **Survive**: **S**urvive **an**d
-3) **Signify**: have **S**ignificance 
+3) **Signify**: to have **S**ignificance 
 
 24 Universal Character Strengths which are common across various human societies and cultures:
 
