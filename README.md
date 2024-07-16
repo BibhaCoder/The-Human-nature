@@ -3,7 +3,7 @@
 **Best about human nature**:
 ----
 
-Fundamental nature of human beings just like any living specie is driven by **SanS** (Survive and Signify):
+Fundamental nature of human beings just like any living species is driven by **SanS** (Survive and Signify):
 
 1) **Survive**: **S**urvive **an**d
 3) **Signify**: have **S**ignificance 
